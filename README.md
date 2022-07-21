@@ -1,1 +1,0 @@
-# IHateTheProgrammingClass.github.io
